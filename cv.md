@@ -46,4 +46,4 @@ Last year I've graduated Tashkent University of Information Technologies and got
 ### English language
 My english degree is between intermediate and upper intermediate, I've attended lessons in local learning centers.
 
-##### Thank you
+##### Thank you, fellas
